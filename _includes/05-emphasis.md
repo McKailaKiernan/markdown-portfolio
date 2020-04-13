@@ -1,0 +1,1 @@
+I'm a senior **graphic design** student at Liberty University Online. Skilled in *logo design, web design, print design, branding & identity.* Self-taught **web developer,** and **software engineer.** 
