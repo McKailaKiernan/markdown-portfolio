@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+I'm a senior **graphic design** student at Liberty University Online. Skilled in *logo design, web design, print design, branding & identity.* Self-taught **web developer,** and **software engineer.** 
